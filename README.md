@@ -1,0 +1,1 @@
+# practica_s7
